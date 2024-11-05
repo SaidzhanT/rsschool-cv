@@ -1,6 +1,6 @@
 # Saidzhan Turdakhunov
 
-![](https://scontent.fvca1-1.fna.fbcdn.net/v/t39.30808-6/438834080_122141262632129185_3793841193578920466_n.jpg?_nc_cat=102&ccb=1-7&_nc_sid=6ee11a&_nc_eui2=AeFDUT87YMZzRkKfAYrLWSgfMWk_Y01F8GExaT9jTUXwYewKVUcIxqu2J3425gzWJTI1NoefCRd_23IPRv2qQqO1&_nc_ohc=fcAypfQ9KLAQ7kNvgHEt8ev&_nc_zt=23&_nc_ht=scontent.fvca1-1.fna&_nc_gid=ALXv35FtFhMZiW3bgHh7Y0R&oh=00_AYCg4wCYoXjQ6aXXklJZmiN8Tytg9u7-fO79NDEoSxk74A&oe=672FA76B)
+<img src="https://scontent.fvca1-1.fna.fbcdn.net/v/t39.30808-6/438834080_122141262632129185_3793841193578920466_n.jpg?_nc_cat=102&ccb=1-7&_nc_sid=6ee11a&_nc_eui2=AeFDUT87YMZzRkKfAYrLWSgfMWk_Y01F8GExaT9jTUXwYewKVUcIxqu2J3425gzWJTI1NoefCRd_23IPRv2qQqO1&_nc_ohc=fcAypfQ9KLAQ7kNvgHEt8ev&_nc_zt=23&_nc_ht=scontent.fvca1-1.fna&_nc_gid=ALXv35FtFhMZiW3bgHh7Y0R&oh=00_AYCg4wCYoXjQ6aXXklJZmiN8Tytg9u7-fO79NDEoSxk74A&oe=672FA76B" width="300" alt="Saidzhan Turdakhunov">
 
 ## Contacts
 
