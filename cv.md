@@ -9,6 +9,7 @@
 - Git Hub: [SaidzhanT](https://github.com/SaidzhanT)
 - Email: saidzhanturdakhunov@gmail.com
 - Linkedin: [Saidzhan Turdakhunov](https://www.linkedin.com/in/saidzhan-turdakhunov-417147274/)
+- Facebook: [Saidzhan Turdakhunov](https://www.facebook.com/profile.php?id=61553875558610)
 
 ## About Me
 
