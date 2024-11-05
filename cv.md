@@ -4,7 +4,7 @@
 
 ## Contacts
 
-- Location: Vietnam, Nha Trang
+- Location: Vietnam, Phu Quoc
 - Phone number: +84 38 2309072
 - Git Hub: [SaidzhanT](https://github.com/SaidzhanT)
 - Email: saidzhanturdakhunov@gmail.com
